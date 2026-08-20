@@ -1,2 +1,0 @@
-# FirstThingsFirst_PrivacyPolicy
-FirstThingsFirst PrivacyPolicy
